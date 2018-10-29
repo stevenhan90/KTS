@@ -1,0 +1,3 @@
+# KaggleTwoSigma
+
+https://join.slack.com/t/kenshokagglenights/shared_invite/enQtNDY3MDQxNDg3MTg3LTM2MzQ1Y2FlMTRmMTNmNmQ3YTY3MDMxMWY1NzU5ZTgzZjQ3YmM5ZjY0ZmQ5YjdhMmNhZTFhYWNmMTYyMThjNjk
